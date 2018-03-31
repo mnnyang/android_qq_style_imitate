@@ -1,0 +1,1 @@
+# android_qq_style_imitate
